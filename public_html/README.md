@@ -1,1 +1,0 @@
-# zadanko-pai
